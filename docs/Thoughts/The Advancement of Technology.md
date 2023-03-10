@@ -1,0 +1,3 @@
+One can only imagine how much faster our world would have advanced technologically had education been more available in past generations. How much faster we could have invented things. This may be a positive during major wars such as WWI and WWII, what would those wars had looked like if technology was just that more advanced. 
+
+[[hist1900c-starter-vault/website/Sources/@BushVannevarAsWeMayThink1945]]

@@ -1,0 +1,2 @@
+The invention of supervisory seems really interesting to me. I'd like to look further into how the invention was best deployed during the war. Is the basic idea of the invention still used today?
+[[@BritanicaWWIIMilitaryCommunication]]

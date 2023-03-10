@@ -1,0 +1,2 @@
+Knowing the importance and reliance on mobile radios in the war, I wonder how easy they were to use, were they farily intuitive. Or did soldiers need to be trained on how to use them and potentially trouble shoot if they ran into problems.
+[[@BritanicaWWIIMilitaryCommunication]]

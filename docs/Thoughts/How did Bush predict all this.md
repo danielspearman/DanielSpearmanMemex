@@ -1,0 +1,2 @@
+It's very cool to see how well Bush was able to predict so many technological advancements. I can only think he was able to predict this because of his understanding of what scientists were working on and where that work could lead in the future. 
+[[@BushVannevarAsWeMayThink1945]]

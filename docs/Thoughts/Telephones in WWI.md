@@ -1,0 +1,2 @@
+I learned that telephones were extremly common in WWI and most bases and trenches used them as their primary communication. Could be difficult to use, when advancing into enemy lines, soliders needed to place down. Also the risk of lines being cut off by the enemy.
+[[@WWIMilitaryCommunication]]

@@ -1,0 +1,3 @@
+I understand the purpose of the federated wiki and I certainly can see the appeal behind it. However I question if it has a large demographic who see that appeal. To me it seems like a a tool only used by reaserchers and educators. So it confused me as to why Caulfield used Facebook and Twitter as a comparison, two websites that are more so for casual use. 
+
+[[@CaulfieldMikeTheGardenAndTheStream2015]]
